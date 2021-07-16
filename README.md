@@ -8,5 +8,5 @@ this is a warrning, give me hugs please
 i want some chocolates thanks 
 
 ##deployment
-another modification,.when will this suffering end?
+another modification,.when will this suffering end? bakit hindi sumama?
 ##how to contriubute
